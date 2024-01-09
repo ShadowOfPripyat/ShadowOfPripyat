@@ -11,4 +11,3 @@
 - 🙄 Pronouns: ...   I do not participate in mentally ill grammar rules, or any movement like that.
 - ⚡ Fun fact: ...   no fun fact for you haha
 - 
-<script type='text/javascript' src='//www.midijs.net/lib/midi.js'></script>
