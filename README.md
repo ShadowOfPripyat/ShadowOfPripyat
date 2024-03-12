@@ -8,9 +8,9 @@
 
 - 👯 I’m looking to collaborate on ...   Nine Eleven 🛫🏢
 
-- 🤔 I’m looking for help with ...   My midi player repo (please, help)
+- 🤔 I’m looking for help with ...   My midi player repo, or any repo that you like
 
-- 💬 Ask me about ...
+- 💬 Ask me about ... 
 
 - 📫 How to reach me: ...   Good luck if you want to contact me.
 
