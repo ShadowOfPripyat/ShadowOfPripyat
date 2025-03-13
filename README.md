@@ -2,19 +2,19 @@
 ![](https://media.tenor.com/PDZBrAetTUIAAAAi/r2d-reason2die-r2da-placerebuilder-gosinister-css-cool.gif)
 ### if you want to know more about me...
 
-- 🔭 I’m currently working on ...   Nothing, i have lots of ideas but i short knowledge or time lmao
+- 🔭 I’m currently working on ...   Nothing, i have lots of ideas and instpiration but i have a lack of time.
 
-- 🌱 I’m currently learning ...    lots of things, from configuring ldap to replacing sparkplugs on a Miata.
+- 🌱 I’m currently learning ...    C# [C hashtag :) ] and Elephant "Postgre" SQL!
 
-- 👯 I’m looking to collaborate on ...   Nine Eleven 🛫🏢
+- 👯 I’m looking to collaborate on ...   Nothing, no time!
 
-- 🤔 I’m looking for help with ...   My midi player repo, or any repo that you like
+- 🤔 I’m looking for help with ...   nothing at the momento.
 
-- 💬 Ask me about ... 
+- 💬 Ask me about ...    Hello Kitty
 
 - 📫 How to reach me: ...   Good luck if you want to contact me.
 
-- 🙄 Pronouns: ...   I do not participate in mentally ill grammar rules, or any movement like that.
+- 🙄 Pronouns: ...   I do not participate in mentally ill grammar rules, or any LG-TV-BBQ movement like that.
 
 - ⚡ Fun fact: ...   no fun fact for you haha
 
