@@ -19,8 +19,7 @@
 - ⚡ Fun fact: ...   no fun fact for you haha
 
 
-![Muohh-uohhh-6x-RIFE-RIFE4 0-50fps](https://github.com/ShadowOfPripyat/ShadowOfPripyat/assets/73404930/5aaaad54-516b-40eb-9b44-116cbdf5bfe1) <!---
-![fl-chan-my-beloved](https://github.com/ShadowOfPripyat/ShadowOfPripyat/assets/73404930/e6b5f329-28db-4dce-99e4-6e24d2334a66) --->
+![Muohh-uohhh-6x-RIFE-RIFE4 0-50fps](https://github.com/ShadowOfPripyat/ShadowOfPripyat/assets/73404930/5aaaad54-516b-40eb-9b44-116cbdf5bfe1) 
 <!---
 ![side-to-side-RIFE](https://github.com/ShadowOfPripyat/ShadowOfPripyat/assets/73404930/3fc0c584-4bfa-4771-80ce-634ff0da1d9c) ![boingy](https://github.com/ShadowOfPripyat/ShadowOfPripyat/assets/73404930/04d30399-6b85-4495-a739-ba7edbb5c3a4) --->
 
