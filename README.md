@@ -14,13 +14,13 @@
 
 - 📫 How to reach me: ...   Good luck if you want to contact me.
 
-- 🙄 Pronouns: ...   I do not participate in mentally ill grammar rules, or any LG-TV-BBQ movement like that.
+- 🙄 Pronouns: ...   I do not participate in mentally ill grammar rules, or any LGTVBBQ movement/propaganda like that!!! 
 
 - ⚡ Fun fact: ...   no fun fact for you haha
 
-
-![Muohh-uohhh-6x-RIFE-RIFE4 0-50fps](https://github.com/ShadowOfPripyat/ShadowOfPripyat/assets/73404930/5aaaad54-516b-40eb-9b44-116cbdf5bfe1) 
 <!---
+![Muohh-uohhh-6x-RIFE-RIFE4 0-50fps](https://github.com/ShadowOfPripyat/ShadowOfPripyat/assets/73404930/5aaaad54-516b-40eb-9b44-116cbdf5bfe1) 
+
 ![side-to-side-RIFE](https://github.com/ShadowOfPripyat/ShadowOfPripyat/assets/73404930/3fc0c584-4bfa-4771-80ce-634ff0da1d9c) ![boingy](https://github.com/ShadowOfPripyat/ShadowOfPripyat/assets/73404930/04d30399-6b85-4495-a739-ba7edbb5c3a4) --->
 
 <!--- Play the music, please. 
