@@ -2,9 +2,9 @@
 ![](https://media.tenor.com/PDZBrAetTUIAAAAi/r2d-reason2die-r2da-placerebuilder-gosinister-css-cool.gif)
 ### if you want to know more about me...
 
-- 🔭 I’m currently working on ...   Nothing, i have lots of ideas and instpiration but i have a lack of time.
+- 🔭 I’m currently working on ...   Nothing, i have lots of ideas and inspiration but i have a lack of time.
 
-- 🌱 I’m currently learning ...    C# [C hashtag :) ] and Elephant "Postgre" SQL!
+- 🌱 I’m currently learning ...    Lots of things related to software development
 
 - 👯 I’m looking to collaborate on ...   Nothing, no time!
 
